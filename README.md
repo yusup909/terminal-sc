@@ -1,3 +1,6 @@
 # terminal-sc
 
 # MAMPUS GK TAU RUN :V
+
+
+# SUBREK YT YUSUP909
